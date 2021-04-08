@@ -1,1 +1,1 @@
-# devgo.team
+# kshomestay.cf
