@@ -1,0 +1,1 @@
+# kshomestay.cf
